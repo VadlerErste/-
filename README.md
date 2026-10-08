@@ -12,4 +12,4 @@
 
 Пароль: *Sdf4$2;d-d30pp*
 
-
+Аналитический дашборд : https://datalens.yandex/g1sqtrx0lxw61?tab=aW
